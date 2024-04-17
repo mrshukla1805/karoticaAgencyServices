@@ -22,7 +22,7 @@ We are an mid sized agency which are experts in two fields
     
     Have a look at our trailer : https://youtu.be/hSpc_k1OkZ8
     
-    One of our channels (Currenlty around 20k subscribers) : https://www.youtube.com/@UnfilteredIndia643    
+    One of our channels (Currently around 20k subscribers) : https://www.youtube.com/@UnfilteredIndia643    
     
     # For our product development 
     
